@@ -1,0 +1,1 @@
+A : Yeni kodu çekerken ve ekranımda belirdiğini görünce heyecanlandım.Güzel bir histi.
